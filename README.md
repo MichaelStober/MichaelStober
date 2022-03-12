@@ -1,1 +1,1 @@
-Hi my name is Michael Stober and I am currently studing at University of Esslingen. 
+Hi my name is Michael Stober and I am currently studing Computer Engineering at University of Esslingen. 
